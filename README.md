@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Aadamgaming, I have a channel
+- 👀 I’m interested in games and computers
+- 📫 How to reach me Aadamgamerpro1@gmail.com
